@@ -1,4 +1,4 @@
-# its-tv-time
+# WELCOME TO TENNATISM!
 🌻 hi there!! i'm taz, but you may call me lucas, luce, lottie, etc. :) this is my github account for pony town! please be sure to check out my website, you can sign my guestbook there! it's located in the homepage :) best seen on desktop! ᶻ 𝗓 𐰁 i may be a coder myself yes but... don't expect me to use my github for anything else
 
 yes, i'm the guy who made cupio. i usually hang around the UT/DR area, and i'm mostly a DELTARUNE fan so please don't expect me to talk much about UNDERTALE as much!
