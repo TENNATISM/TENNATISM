@@ -4,6 +4,8 @@
  
 🌻 hi there!! i'm taz, but you may call me lucas, luce, lottie, etc. :) this is my github account for pony town! [please be sure to check out my website](https://thegreenroom.neocities.org/), you can sign my guestbook there! it's located in the homepage :) best seen on desktop! ᶻ 𝗓 𐰁 i may be a coder myself yes but... don't expect me to use my github for anything else
 
+if you don't wanna look through my page though (or are on mobile) you can check my guestbook [here](http://extras3.smartgb.com/b/gb_80x40.gif) instead!
+
 yes, i'm the guy who made cupio. i usually hang around the UT/DR area, and i'm mostly a DELTARUNE fan so please don't expect me to talk much about UNDERTALE as much!
 i do NOT have a dni, i either block freely or ignore. i just don't really care writing for most of this stuff to be honest. other than that, usual dni criteria is a block lol
 
