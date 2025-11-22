@@ -38,3 +38,4 @@ i do NOT have a dni, i either block freely or ignore. i just don't really care w
 
 ![go my tenna](https://file.garden/aGVgARL4OBP7L4sn/ezgif-3eea2686b0a092.gif)
 
+**copilot the next time you try to fucking make a description for every change for this readme it is ON. SIGHT**
