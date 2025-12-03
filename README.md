@@ -11,7 +11,16 @@ yes, i'm the guy who made cupio. i usually hang around the UT/DR area, and i'm m
 i do NOT have a dni, i either block freely or ignore. i just don't really care writing for most of this stuff to be honest. other than that, usual dni criteria is a block lol
 
 [**for my toyhouse, see here... if you wanna know more about my ocs!**](https://toyhou.se/tazmilyboy)
-**FEATURED OCS** ✦ [jackpins](https://toyhou.se/34607344.jackpins-jack) | [moira](https://toyhou.se/36365490.moira)
+
+**FEATURED OCS** ✦ links go to toyhouse
+
+| [jackpins](https://toyhou.se/34607344.jackpins-jack)  | [moira](https://toyhou.se/36365490.moira) |
+| ------------- | ------------- |
+| ![jackpins](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-%F0%9F%8E%B2%20Jackpins%20_%20Jack%20_%20DTR%20OC-stand-3x.png)  | ![moira](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-%F0%9F%94%94%20Moira%20_%20DTR%20OC-stand-3x.png) |
+
+
+
+
 
 **✦ BEFORE YOU INTERACT ✦**
 
