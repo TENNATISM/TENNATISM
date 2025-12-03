@@ -10,6 +10,9 @@ i'm a major battat kinnie (i just found this out recently and now i'm making it 
 yes, i'm the guy who made cupio. i usually hang around the UT/DR area, and i'm mostly a DELTARUNE fan so please don't expect me to talk much about UNDERTALE as much!
 i do NOT have a dni, i either block freely or ignore. i just don't really care writing for most of this stuff to be honest. other than that, usual dni criteria is a block lol
 
+[**for my toyhouse, see here... if you wanna know more about my ocs!**](https://toyhou.se/tazmilyboy)
+**FEATURED OCS** ✦ [jackpins](https://toyhou.se/34607344.jackpins-jack) | [moira](https://toyhou.se/36365490.moira)
+
 **✦ BEFORE YOU INTERACT ✦**
 
 ───────── ౨ৎ ─────────
