@@ -2,7 +2,7 @@
 
 ![go my tenna](https://file.garden/aGVgARL4OBP7L4sn/IMG_3522.gif)
  
-🌻 hi there!! i'm taz, but you may call me lucas, luce, lottie, etc. :) this is my github account for pony town! [please be sure to check out my website](https://thegreenroom.neocities.org/), you can sign my guestbook there! it's located in the homepage :) best seen on desktop! ᶻ 𝗓 𐰁 i may be a coder myself yes but... don't expect me to use my github for anything else
+🌻 hi there!! i'm battat, but you may call me mike, mippins, taz. :) this is my github account for pony town! [please be sure to check out my website](https://thegreenroom.neocities.org/), you can sign my guestbook there! it's located in the homepage :) best seen on desktop! ᶻ 𝗓 𐰁 i may be a coder myself yes but... don't expect me to use my github for anything else
 
 if you don't wanna look through my page though (or are on mobile) you can check my guestbook [here](https://users3.smartgb.com/g/g.php?a=s&i=g36-39308-97) instead!
 
@@ -16,7 +16,7 @@ i do NOT have a dni, i either block freely or ignore. i just don't really care w
 
 | [jackpins](https://toyhou.se/34607344.jackpins-jack)  | [moira](https://toyhou.se/36365490.moira) |
 | ------------- | ------------- |
-| ![jackpins](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-%F0%9F%8E%B2%20Jackpins%20_%20Jack%20_%20DTR%20OC-stand-3x.png)  | ![moira](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-%F0%9F%94%94%20Moira%20_%20DTR%20OC-stand-3x.png) |
+| ![jackpins](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-%231%20battat%20kisser%20%E2%99%A6%20DTR%20OC-stand-2x.png)  | ![moira](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-invites%20the%20devil%20in!%20_%20OC-stand-ponyplush-3x.png) |
 
 
 
@@ -29,6 +29,8 @@ i do NOT have a dni, i either block freely or ignore. i just don't really care w
 ✦ **I'M A TENNA YUMESHIPPER** i like tenna a WHOLE LOT. even if i'm not open about it here i may or may not talk about this sometimes so be warned, ESPECIALLY if you're non-sharing. i am a sharing tenna yume though! <3
 
 ✦ this also also means i don't usually do Serious ship rps with like... other tenna ships. i'm sharing i know but still! not because i hate them or anything tho.
+
+✦ when in character as battat / in my battat skin, please refer to my skin of her with she/her pronouns. I headcanon her as transfem ^_^
 
 ✦ i'm autistic, please be patient with me <:) i'm rather slow and i don't really recognize a lot of social cues. please be sure to use tone tags around me!
 
