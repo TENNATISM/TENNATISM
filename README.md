@@ -18,9 +18,9 @@ i do NOT have a dni, i either block freely or ignore. i just don't really care w
 | ------------- | ------------- |
 | ![jackpins](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-%F0%9F%8E%B2%20jackpins!%20%E2%99%A6%20DTR%20OC%20_%20c%2Bh-stand-ponyplush-3x.png)  | ![moira](https://file.garden/aRWpD6C0BHrrKsQP/pony-town-invites%20the%20devil%20in!%20_%20OC-stand-ponyplush-3x.png) |
 
+p.s., i ship my main OC, Jackpins, with battat. ^_^ please feel free to interact! I LOVE JACKBAT PLEASE PLEASE PLEASE IM ON MY KNEES PLEASE [HERE'S ALL THEIR ART PLEASE](https://toyhou.se/34607344.jackpins/36382123.jackbat-jackpins-x-battat)
 
-
-
+![sprite art of battat and jackpins as little angel and devil respectively](https://f2.toyhou.se/file/f2-toyhou-se/thumbnails/115300775_wij.gif)
 
 **✦ BEFORE YOU INTERACT ✦**
 
