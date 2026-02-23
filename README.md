@@ -20,7 +20,7 @@ i do NOT have a dni, i either block freely or ignore. i just don't really care w
 
 p.s., i ship my main OC, Jackpins, with battat. ^_^ please feel free to interact! I LOVE JACKBAT PLEASE PLEASE PLEASE IM ON MY KNEES PLEASE [HERE'S ALL THEIR ART PLEASE](https://toyhou.se/34607344.jackpins/36382123.jackbat-jackpins-x-battat)
 
-![sprite art of battat and jackpins as little angel and devil respectively](https://f2.toyhou.se/file/f2-toyhou-se/thumbnails/115300775_wij.gif)
+![lala](https://file.garden/aRWpD6C0BHrrKsQP/Art/jackbat%20animals.gif)
 
 **✦ BEFORE YOU INTERACT ✦**
 
