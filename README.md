@@ -26,8 +26,6 @@ p.s., i ship my main OC, Jackpins, with battat. ^_^ please feel free to interact
 
 ───────── ౨ৎ ─────────
 
-✦ **I'M A TENNA YUMESHIPPER** i like tenna a WHOLE LOT. even if i'm not open about it here i may or may not talk about this sometimes so be warned, ESPECIALLY if you're non-sharing. i am a sharing tenna yume though! <3
-
 ✦ this also also means i don't usually do Serious ship rps with like... other tenna ships. i'm sharing i know but still! not because i hate them or anything tho.
 
 ✦ when in character as battat / in my battat skin, please refer to my skin of her with she/her pronouns. I headcanon her as transfem ^_^
@@ -44,10 +42,8 @@ p.s., i ship my main OC, Jackpins, with battat. ^_^ please feel free to interact
 
 ───────── ౨ৎ ─────────
 
-✦ i like DELTARUNE a whole lot, but i have other interests, like earthbound/MOTHER!!! i've been a fan of DR since chapter 1, though during the hiatuses i've been mostly inactive in the community. lol
+✦ i like DELTARUNE a whole lot, but i have other interests, like undertale yellow, uma musume and earthbound/MOTHER!!! i've been a fan of DR since chapter 1, though during the hiatuses i've been mostly inactive in the community. lol
 
-✦ i go by STRICTLY they/them! please do not refer to me as he/him despite my name lol
-
-✦ i am tenna deltarune's wife.
+✦ i go by STRICTLY they/them!
 
 ![go my tenna](https://file.garden/aGVgARL4OBP7L4sn/ezgif-3eea2686b0a092.gif)
