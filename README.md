@@ -17,7 +17,7 @@ if you don't wanna look through my page though (or are on mobile) you can check 
  
  <img src=https://64.media.tumblr.com/35b36ca923fa4429f1f2948ef79206b5/4fa5ae196b50fb15-42/s100x200/0c63228ef02e81cbecfb0ef0e274d512342a56ee.pnj align="right"> i'm a major battat kinnie (i just found this out recently and now i'm making it my entire personality) and i like to make ocs and oc x canon. i usually hang around the UT/DR area, and i'm mostly a DELTARUNE fan so please don't expect me to talk much about UNDERTALE as much! i do NOT have a dni, i either block freely or ignore. i just don't really care writing for most of this stuff to be honest. other than that, usual dni criteria is a block lol
 
-<p align="center"><a href=https://toyhou.se/tazmilyboy/characters>for my toyhouse, see here... if you wanna know more about my ocs!</a></p>
+<p align="center"><a href=https://toyhou.se/tvtaztic/characters>for my toyhouse, see here... if you wanna know more about my ocs!</a></p>
 
 
 
